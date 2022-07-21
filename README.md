@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @humxnprism
+- 👀 I’m interested in quantum living and human optimisation 
+- 🌱 I’m currently learning coding + blockchain
+- 💞️ I’m looking to collaborate on start up based projects that focus on community rewards
+- 📫 How to reach me @humxnprism on socials
